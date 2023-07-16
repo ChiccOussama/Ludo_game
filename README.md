@@ -12,8 +12,11 @@ Key Features:
 
 3.Discover New Features: Explore a variety of functionalities and surprises as you progress through the game, ensuring a fresh and exciting experience every time.
 
-4.Intuitive Controls: Easily navigate through the game with user-friendly controls designed to enhance your gaming experience.
+4.Intuitive Controls: Easily navigate through the game with user-friendly controls designed to enhance your gaming experien![Uploading Capture d’écran 2023-07-16 234926.jpg…]()
+ce.
 
 5.Captivating Visuals: Immerse yourself in a visually appealing game environment that brings the Ludo board to life.
 
 Whether you're reliving childhood memories or introducing your loved ones to the joy of Ludo, this game offers endless fun and excitement. Unleash your strategic skills, roll the dice, and make your way to victory in the captivating world of Ludo Game. Download now and embark on an unforgettable gaming adventure!
+https://www.youtube.com/watch?v=ke0pziaceSg&t
+![Capture d’écran 2023-07-17 001456](https://github.com/ChiccOussama/Ludo_game/assets/36731728/ffd6db5b-12e7-4ae5-8bbe-d93a380755d3)
